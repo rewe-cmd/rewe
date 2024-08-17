@@ -1,0 +1,2 @@
+# rewe
+mikir dulu
